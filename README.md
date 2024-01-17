@@ -2,3 +2,5 @@
 
 Hi, I'm Samin and welcome to NWHAcks
 I like bread
+
+FREE FREE PALESTINE
